@@ -1,0 +1,1 @@
+# Komendy_do_linuxa
